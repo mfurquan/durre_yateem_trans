@@ -12,7 +12,7 @@ Be His special blessings and peace upon our master Muhammad.
 
 Durr-e-Yateem (literally: the peerless Pearl) occupies a special place in the biographies of Prophet of Islam. The translator has witnessed and heard of people, including atleast one non-muslim, moving to tears after reading through the touching account presented in the book.
 
-All thanks to Allah for motivating his servant for this translation. If Allah wills, this will bring some of the heartwarming experience originally available in Urdu to a wider audience unfamiliar with the language.
+All thanks to Allah for motivating this servant for the translation. If Allah wills, this will bring some of the heartwarming experience originally available in Urdu to a wider audience unfamiliar with the language.
 
 Seeker of intercession,  
 Muhammad Furquan  
@@ -35,7 +35,7 @@ For example, accounts prove that Abdul Muttalib had vowed that if he is blessed 
 
 The conversation between foster mothers, "Halima Saadiyah's" talk and the happenings during their journey have also been described as they should have occurred. The basis of these details is always historical, but their interpretations have been created by my own thoughts. Had I excluded the detailing of this kind, the novel would have been reduced to a book of history.
 
-The portion describing holy revelation and onward is the most established and authenticated. Books of knowledge and Seerah are its source. I could have erred despite the precaution for I am only a human rather than an angel. Nevertheless, Allah is aware of the intention is my heart, that I have been cautious even while fashioning the book like a novel.
+The portion describing holy revelation and onward is the most established and authenticated. Books of knowledge and Seerah are its source. I could have erred despite the precaution for I am only a human rather than an angel. Nevertheless, Allah is aware of the intention in my heart, that I have been cautious even while fashioning the book like a novel.
 
 Many of my novels and collection of stories have been published. But, this novel (Durr-e-Yateem) is my wealth of second life and sustenance for afterlife. Countless times I burst into tears while writing. These tears are my only earnings of life and cherished riches of joy.
 
