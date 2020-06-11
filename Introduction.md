@@ -15,10 +15,10 @@ Durr-e-Yateem (literally: the peerless Pearl) occupies a special place in the bi
 All thanks to Allah for motivating this servant for the translation. If Allah wills, this will bring some of the heartwarming experience originally available in Urdu to a wider audience unfamiliar with the language.
 
 Seeker of intercession,  
-Muhammad Furquan  
+MF 
 
 28 Sha'baan, 1441H (23 April, 2020)  
-Aligarh
+A
 
 ## Message
 ---
