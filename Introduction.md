@@ -7,7 +7,7 @@
 A translation of: **Durr-e-Yateem** by *Mahirul Quadri*
 
 ## Translator's Note:
-All praise belongs to Allah, the Creator and the Sustainer of worlds.
+All praises belong to Allah, the Creator and the Sustainer of worlds.
 Be His special blessings and peace upon our master Muhammad.
 
 Durr-e-Yateem (literally: the peerless Pearl) occupies a special place in the biographies of Prophet of Islam. The translator has witnessed and heard of people, including atleast one non-muslim, moving to tears after reading through the touching account presented in the book.
