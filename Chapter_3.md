@@ -1,10 +1,10 @@
 ## Journey towards Shaam
 
-Around two three months have passed since the marriage. Panniers are getting secured to the backs of camels at the house of Abdul Muttalib. Mouths of pouches of sattu are being tied. Water reservoirs are getting filled. Tattered scabbards got exchanged, quiver has been equipped with sharp arrows. Journey to a strange land is imminent and everybody prefers extra preparation while going to a different country compared to traveling within your lands.
+Around two three months have passed since the marriage. Panniers are getting secured to the backs of camels at the house of Abdul Muttalib. Mouths of pouches of sattu are being tied. Water reservoirs are getting filled. Tattered scabbards got exchanged, quivers have been equipped with sharp arrows. Journey to a strange land is imminent and everybody prefers extra preparation while going out to another country, as compared to traveling within your own.
 
 Abdullah, who has got not many days since getting married, is going to Shaam for business. Close relatives have gathered to bid him adieu. This journey will be covered through desolate jungles, dreaded deserts and difficult terrains.
 
-"Oh son of Abdul Muttalib! The oasis which comes after six manzils from Mecca is dangerous. Caravans often get looted there. Rumour is that robbers from the tribe of Ghaffar have wreaked havoc there. Be watchful." Abdullah looked at his sword. This look was his answer, supposedly meaning that if faced with looters and plunderers, response will be given in equal measure by the sword. People of Hashmi family are matchless in bravery and courage. Dangers cannot subdue them. Their swords have protected Ka'bah during times of great threats!
+"Oh son of Abdul Muttalib! The oasis which comes after six manzils from Mecca is dangerous. Often, the caravans passing it get looted. Rumour is that robbers from the tribe of Ghaffar have wreaked havoc there. Be watchful." Abdullah looked at his sword. This look was his answer, supposedly meaning that if faced with looters and plunderers, response will be given in equal measure by the sword. People of Hashmi family are matchless in bravery and courage. Dangers cannot subdue them. Their swords have protected Ka'bah during times of great threats!
 
 Abdul Muttalib kissed the forehead of Abdullah, Abdullah's head got lowered by itself in modesty. He prayed for the successful return of his son. White beard too started trembling along with the lips! Abbas handled the nose peg, Hamzah affectionately held brother's hand while he got seated on the saddle. Amnah was quietly watching the scene like a statue. Not just husband, her whole world was going away; towards lonely forests, where no sign of habitation appears till miles of journey. She was shy of sharing her grief. Had she got her way, she would have unloaded the camel and prevented him from the travel.
 
@@ -16,7 +16,7 @@ Abdullah too glanced at the walls and entrances with longing, just as somebody d
 
 "His father's name is Abdul Muttalib, leader of Quraysh and guardian of holy Ka'bah, and you you..."
 
-(Not allowing to complete the sentence) "You ignorant! just know playing with dolls and sing. Oh uninformed, Amir is the real name of Abdul Muttalib and his title is *Sheba*. Got it?"
+(Not allowing to complete the sentence) "You ignorant! Just know how to play with dolls and sing. Oh uninformed, Amir is the real name of Abdul Muttalib and his title is *Sheba*. Got it?"
 
 "Thank you! May all the blessings of Laat and Hubal come your way."
 
